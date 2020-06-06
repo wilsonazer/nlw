@@ -1,1 +1,1 @@
-"# Coleta de Recicl veis  " 
+"# Coleta de Reciclï¿½veis  " 
